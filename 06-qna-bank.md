@@ -2,6 +2,8 @@
 
 Rubric item: Q and A ("conducted the session very well"). Any presenter can answer, but the best match is shown in brackets. Keep each answer to about 30 to 45 seconds. If you do not know, say so honestly and offer to check, and do not guess a ruling. Our lecturer is the final authority.
 
+Some answers lean on slides that were cut from the live talk and now sit in the hidden backup slides. Open them from the slide sorter if you want to show them. Maqasid is slide 49, legal models are slide 48, forms and sugar arrangements are slide 46, extra verses and hadith are slides 51 to 54, and the case cards are slide 61.
+
 ---
 
 **1. If a person is forced into prostitution, are they sinful? [Presenter 3]**
@@ -35,7 +37,7 @@ If sex is exchanged for money or benefits, then yes, it falls under the same rul
 We do not deny that people have different experiences, and we do not judge anyone's heart. The studies we quoted show that many people want to leave, and the ruling of Islam does not depend on feelings. We also say that the buyer and the pimp share responsibility, so the case is not only about one person's choice.
 
 **11. If the prostitute in the hadith was forgiven for giving water to a dog, does it mean the sin is small? [Presenter 1 or 3]**
-No. The hadith shows the vastness of Allah's mercy and the value of a sincere good deed, and it does not make the act lawful. Allah forgives whom He wills, and Al-Furqan 68 to 70 tells us that the way to forgiveness is sincere repentance, belief and righteous deeds.
+No. The hadith shows the vastness of Allah's mercy and the value of a sincere good deed, and it does not make the act lawful. Allah forgives whom He wills, and Surah Al-Furqan: Verses 68 to 70 tell us that the way to forgiveness is sincere repentance, belief and righteous deeds.
 
 **12. Are hudud punishments for zina carried out in Malaysia? [Presenter 2 or 3]**
 No. Syariah criminal offences in Malaysia are tried as ta'zir offences under state enactments, within the federal limit of three years in prison, RM5,000 and six strokes of the cane. The Quran also sets a very high standard of proof, four witnesses in Surah An-Nur: Verse 4, and warns against accusing people, so the focus is on prevention and not on spying.

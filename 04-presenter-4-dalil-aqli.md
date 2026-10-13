@@ -1,96 +1,82 @@
-# Presenter 4 | Evidence 2: Dalil aqli, myths and quiz (slides 34 to 44, about 9 minutes)
+# Presenter 4 | Evidence 2: Dalil aqli and myths (slides 23 to 28, about 5 minutes)
 
-Goal of this part: show that reason and research agree with the revelation. Rubric item: Evidence ("accurate explanation with dalil naqli and aqli"). Be honest about limits. Studies on a hidden activity have weaknesses, and a good presenter says so. That makes the argument stronger, not weaker.
+Goal of this part: show that reason and research agree with the revelation. Rubric item: Evidence ("accurate explanation with dalil naqli and aqli"). Be honest about limits. Studies on a hidden activity have weaknesses, and a good presenter says so, which makes the argument stronger.
+
+Read "Surah An-Nur: Verse 33" aloud as "Surah An-Nur, verse 33".
+
+The slides cut from the live talk (exploitation and trafficking, family and lineage, Myth busting 2, and the quiz with its answers) are hidden backup slides 55 to 59. Their text is at the bottom of this file. The exploitation figures were already given by Presenter 1 on slide 8, and the family argument is already in the young man hadith on slide 21.
 
 ---
 
-## Slide 34 | Part 4 divider (0:00 to 0:15)
+## Slide 23 | Part 4 divider (0:00 to 0:10)
 
-Thank you, Presenter 3. Islam never asks us to switch off our minds. The Quran keeps asking "do you not think?". So let us ask what reason and research tell us. This is the dalil aqli.
+Thank you, Presenter 3. Islam never asks us to switch off our minds, and the Quran keeps asking "do you not think?". So what do reason and research tell us? This is the dalil aqli.
 
-## Slide 35 | Reason 1: health (0:15 to 1:15)
+## Slide 24 | Reason 1: health (0:10 to 1:05)
 
-First, health, which is the protection of life. A study of women sex workers in Greater Kuala Lumpur, run by researchers from Yale and the University of Malaya, tested 492 participants in 2014 and 2015. HIV prevalence was 11.7 percent. Malaysian adults in general were at 0.4 percent, according to UNAIDS. That is almost thirty times higher.
+First, health, which is the protection of life. A study of women sex workers in Greater Kuala Lumpur, by researchers from Yale and the University of Malaya, tested 492 participants in 2014 and 2015. HIV prevalence was 11.7 percent. Malaysian adults in general were at 0.4 percent according to UNAIDS. That makes the rate among sex workers almost thirty times higher.
 
-A follow-up paper on the 57 HIV-positive women in that study found that about a quarter of them had never been tested for HIV in their lives, and that about a quarter tested positive for syphilis and a quarter for chlamydia. The authors say stigma and fear of losing confidentiality keep people away from testing.
+A follow-up on the 57 HIV-positive women found that about a quarter had never been tested for HIV, and about a quarter had syphilis and a quarter chlamydia. The authors say stigma and fear of losing confidentiality keep people away from testing.
 
-What does reason say? A practice where the partners change often, where the person cannot easily refuse, and where people are afraid to seek treatment, is a perfect road for disease. It harms the person, and it also spreads to spouses and families. This is exactly what Islam means when it calls the act "evil as a way".
+Reason says that when partners change often, a person cannot easily refuse, and people fear treatment, the road to disease is wide open. It reaches spouses and families too. That is what "evil as a way" means. And because stigma blocks treatment, our answer is to protect health and offer help, not to shame.
 
-An important point for compassion. The same study says the stigma is a barrier to treatment. So our answer to this is not to shame. It is to protect health and to offer help.
+## Slide 25 | Reason 2: violence and trauma (1:05 to 1:55)
 
-## Slide 36 | Reason 2: violence and trauma (1:15 to 2:15)
+Second, violence and trauma, the protection of life and mind. Dr Melissa Farley and her team interviewed 854 people in or recently out of prostitution in nine countries. 71 percent had been physically assaulted. 63 percent had been raped. 75 percent had been homeless at some point. 68 percent met the criteria for post-traumatic stress disorder. And 89 percent wanted to escape but had no other options.
 
-Second, violence and trauma, which is again the protection of life and mind. Dr Melissa Farley and her team interviewed 854 people currently or recently in prostitution in nine countries. 71 percent had been physically assaulted. 63 percent had been raped. 75 percent had been homeless at some point. 68 percent met the criteria for post-traumatic stress disorder. And 89 percent said they wanted to escape prostitution but had no other options to survive.
+A fair note. It is one widely cited study, and its lead author is known for opposing prostitution. People were reached mostly through agencies and the street. So we use it as a sign of what is common, not as a number for every person, and other reports point the same way. Reason says an activity where most people want to leave and violence is common cannot be called a normal job. And when the person is poor, in debt, away from home and without a passport, how free is the agreement? Islam answered in Surah An-Nur: Verse 33. The one with power is responsible, and the compelled are forgiven.
 
-A fair note. This is one widely cited study, and its authors are known for opposing prostitution. The people were interviewed through agencies and on the street, so it may not represent everyone. That is why we use it as evidence of what is common, not as a number for every person. And other studies and reports, which we will see next, point the same way.
+## Slide 26 | Reason 3: does legalising it help? (1:55 to 2:55)
 
-Reason says that an activity where the majority want to leave, and where violence is common, cannot be called a normal job. And it shows why Allah warned in Surah An-Nur: Verse 33 about forcing others for "the temporary interests of worldly life".
+Third, a common argument. "Legalise it, regulate it, and the problem goes away." Is that true?
 
-## Slide 37 | Reason 3: exploitation and trafficking (2:15 to 3:15)
+The economists Seo-Young Cho, Axel Dreher and Eric Neumayer compared up to 150 countries and published in World Development in 2013. On average, countries where prostitution is legal reported larger trafficking inflows than countries where it is banned. Their explanation is that a legal market grows, and a bigger market pulls in more people, including trafficked people.
 
-Third, exploitation, and here the protection of wealth and dignity is at stake. We saw the International Labour Organization figure, 23 percent of forced labour is commercial sexual exploitation. In Malaysia, the 2024 US report says the government identified 165 trafficking victims in the reporting period, 29 of them in sex trafficking. It also says that officials sometimes confuse trafficking and smuggling, and that victims may be treated as offenders instead of victims.
+We must be fair. It is a comparison between countries, so it does not prove cause and effect for each one. Other researchers argue that decriminalisation makes workers safer. So we do not say the debate is over. We say the evidence does not show that legalising removes exploitation, and the Islamic position, to prevent, protect and restore, does not depend on that debate.
 
-Reason asks a simple question. When the person is poor, in debt, away from home, holding no passport, and the "client" has the money, how free is the agreement? Islam already answered this in Surah An-Nur: Verse 33. The one with power is responsible, and the weak one who was compelled receives forgiveness. This is also why the law calls it exploitation in section 372 of the Penal Code.
+## Slide 27 | Myth busting (2:55 to 4:05)
 
-## Slide 38 | Reason 4: does legalisation help? (3:15 to 4:15)
+Three arguments you may hear.
 
-Fourth, a common argument. "Legalise it, regulate it, and the problem goes away." Is that true?
+"It is my body, my choice." Allah honoured the children of Adam in Surah Al-Isra: Verse 70, and that is why a person is not a product. Many did not freely choose, and even where someone did, the buyer, the pimp and the platform share the responsibility.
 
-Economists Seo-Young Cho, Axel Dreher and Eric Neumayer studied up to 150 countries and published in the journal World Development in 2013. They found that, on average, countries where prostitution is legal report larger trafficking inflows than countries where it is banned. Their explanation is that legal markets get bigger, and a bigger market pulls in more people, including trafficked people.
+"Two consenting adults, who is harmed?" Health, spouses, children, and a society that deals with exploitation and crime. Consent under debt or pressure is weak consent.
 
-We have to be fair here as well. It is a statistical comparison between countries, and it does not prove cause and effect for every country. Other researchers and sex worker organisations argue that decriminalisation makes workers safer. So we do not say the debate is over. We say the evidence does not support the claim that legalisation removes exploitation, and that the Islamic position, which is to prevent, protect and restore, does not depend on that debate.
+"It is the oldest profession, so it cannot be stopped." Theft and murder are old too. Islam reduces harm through prevention, marriage, support and law, and does not pretend to erase every sin.
 
-## Slide 39 | Reason 5: family, lineage and trust (4:15 to 5:15)
+## Slide 28 | Where naqli and aqli meet (4:05 to 5:00)
 
-Fifth, the family. Think again of the young man in Presenter 3's hadith. The Prophet (SAW) did not quote a verse. He asked questions. Would you like it for your mother? For your daughter? For your sister?
-
-That is dalil aqli in its purest form. Each of us rejects this idea once it is about the people we love. A society cannot be built on a practice we would reject for our own family.
-
-And think about lineage and trust. Marriage gives clear fatherhood, rights, inheritance and commitment. Prostitution has none of these. Children born from it can be left without a father, and spouses who find out lose trust. Allah says in Surah Ar-Rum 21 that marriage is a place of tranquillity with affection and mercy. Prostitution offers the opposite.
-
-## Slide 40 | Myth busting 1 (5:15 to 6:15)
-
-Now three arguments you may hear.
-
-"It is my body, my choice." Islam does honour the dignity of the human being, Allah says in Al-Isra 70 that He has honoured the children of Adam. And that is exactly why a human being is not a product. Also, many in this situation did not freely choose. And even where the person did choose, the buyer, the pimp and the platform all share the responsibility.
-
-"Two consenting adults, who is harmed?" The harm is wider. Health, family, children, the spouse, and the society that has to deal with exploitation and crime. And consent under debt or pressure is a weak consent.
-
-"It is the oldest profession, so it cannot be stopped." Many sins are old. Theft and murder are old. Being old does not make something right. Islam's answer is to reduce it through prevention, marriage, support and law, and it does not claim to eliminate every sin.
-
-## Slide 41 | Myth busting 2 (6:15 to 7:15)
-
-Three more.
-
-"If we ban it, it goes underground and becomes more dangerous." This is a serious point and we respect it. The Islamic response is not to jail victims. Look at Surah An-Nur: Verse 33, the forgiven are those who were compelled, and look at Malaysian law, which focuses on exploiters, intermediaries and traffickers. Protection of victims and punishment of exploiters is the right direction.
-
-"Poverty forces people, so it is a necessity." Poverty is a real cause, and Islam takes it seriously. That is why there is zakat, the duty to feed the poor, and the call in Surah An-Nur: Verse 32 to help people marry. The community is blamed for leaving a person without options. But hardship is not treated as a licence for zina, and Allah says in Surah An-Nur: Verse 33 that even the one who is forced is forgiven, not praised.
-
-"Only women are blamed." The Quran addresses both men and women in Surah An-Nur: Verse 2 and in Surah An-Nur: Verses 30 and 31. The buyer is equally accountable. If our society blames only the woman, then it is going against its own source.
-
-[If short on time, skip this slide.]
-
-## Slide 42 | Why naqli and aqli agree (7:15 to 8:00)
-
-Look at the table. For each of the five reasons we found a matching Quranic or hadith principle. Health matches "evil as a way". Violence matches the warning against forcing. Exploitation matches the hadith on selling a free person. Family matches the Prophet's questions. And so on. Revelation and reason are looking at the same reality from two directions.
-
-## Slide 43 | Quiz time (8:00 to 8:45)
-
-Let us see what you remember. Five questions. Answer in your head first, I will give the answers on the next slide.
-
-1. Which verse says "do not approach zina"?
-2. What is mahr al-baghiy?
-3. According to the ILO in 2022, what share of forced labour was forced commercial sexual exploitation?
-4. In Surah An-Nur 33, who does Allah promise forgiveness to?
-5. Under section 372 of the Penal Code, how long can the prison sentence be for exploiting a person for prostitution?
-
-## Slide 44 | Quiz answers (8:45 to 9:15)
-
-One, Surah Al-Isra: Verse 32. Two, the fee earned from prostitution. Three, 23 percent. Four, the women who were compelled. Five, up to 15 years, with caning and a fine.
-
-[Ask who got all five right.] Well done. Please remember the answers, because the next part needs them.
+Look at the table. Each finding of reason has a matching principle in the revelation. Disease and stigma match "evil as a way". Violence matches the warning against compelling people for worldly gain. Exploitation matches the hadith against selling a free person. Legalising does not remove exploitation, so the Islamic answer is prevent, protect and restore. And we reject it for the people we love, just like the young man who said no to "Would you like it for your mother?". Revelation and reason look at the same reality from two directions.
 
 **Handover:** "So what does this do to our character and our community, and what can we do? Presenter 5, please."
+
+---
+
+## Backup slides for this part (hidden, not part of the live talk)
+
+### Backup slide 55 | Reason: exploitation and trafficking
+
+The ILO figure is 23 percent of forced labour is commercial sexual exploitation. In Malaysia the 2024 US report says 165 trafficking victims were identified, 29 of them in sex trafficking (23 women and 6 girls). It also says officials sometimes confuse trafficking with smuggling and that victims may be treated as offenders instead of victims. Reason asks one question. When a person is poor, in debt, far from home and without a passport, how free is the agreement? Islam answered in Surah An-Nur: Verse 33, which is also why the Penal Code calls it exploitation in section 372.
+
+### Backup slide 56 | Reason: family, lineage and trust
+
+The Prophet (SAW) asked questions, not only quoted verses. Would you like it for your mother, your daughter, your sister, your paternal aunt, your maternal aunt? Each of us rejects this once it is about the people we love, and a society cannot be built on what we would refuse for our own family. Marriage gives clear fatherhood, rights, inheritance and commitment. Prostitution has none of these, and children can be left without a father. Spouses who find out lose trust, and secrecy trains a person to lie. Allah says in Surah Ar-Rum: Verse 21 that marriage is a place of tranquillity with affection and mercy. Prostitution offers the opposite.
+
+### Backup slide 57 | Myth busting 2
+
+"If we ban it, it goes underground and becomes more dangerous." This is a serious point. The Islamic response does not jail victims. In Surah An-Nur: Verse 33 the forgiven are the compelled, and Malaysian law focuses on exploiters, intermediaries and traffickers. Protecting victims and punishing exploiters is the right direction.
+
+"Poverty forces people, so it is a necessity." Poverty is real, and Islam answers with zakat, the duty to feed the poor, and the call in Surah An-Nur: Verse 32 to help people marry. The community is blamed for leaving a person without options. But hardship is no licence for zina, and Allah says in Surah An-Nur: Verse 33 that even the one forced is forgiven, not praised.
+
+"Only women are blamed." The Quran addresses both men and women in Surah An-Nur: Verse 2 and in Surah An-Nur: Verses 30 and 31. The buyer is equally accountable. A society that blames only the woman goes against its own source.
+
+### Backup slide 58 | Quiz time
+
+Five questions. 1. Which verse says "do not approach zina"? 2. What is mahr al-baghiy? 3. According to the ILO in 2022, what share of forced labour was forced commercial sexual exploitation? 4. In Surah An-Nur: Verse 33, who does Allah promise forgiveness to? 5. Under section 372 of the Penal Code, how long can the prison sentence be for exploiting a person for prostitution?
+
+### Backup slide 59 | Quiz answers
+
+1. Surah Al-Isra: Verse 32. 2. The fee earned from prostitution (forbidden in Bukhari 2237). 3. 23 percent, and almost four in five are women or girls. 4. The women who were compelled. 5. Up to 15 years, with caning and a fine.
 
 ---
 

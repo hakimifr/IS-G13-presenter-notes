@@ -1,6 +1,6 @@
 # References
 
-These are the same references shown on slides 57 to 59. Check each one again before you hand in the deck, especially the hadith numbers in your own printed copies, because different editions number some collections differently.
+These are the same references shown on slides 39 to 41. Check each one again before you hand in the deck, especially the hadith numbers in your own printed copies, because different editions number some collections differently.
 
 ## 1. Primary Islamic sources
 
